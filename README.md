@@ -1,1 +1,1 @@
-- 🌱 I’m currently learning to be engineer!
+- 🌱 Free & Easy
